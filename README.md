@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @malthegit
+- 👀 I’m interested in vr games
+- 🌱 I’m currently learning... ummm... i forgor💀
+- 💞️ I’m looking to collaborate with gamers
+- 📫 How to reach me: idk find me when playing public vr games
+- 😲 fun fact: i see your every move... im watching you right now as you read this
+- 😋 my favorite fruit is mango
